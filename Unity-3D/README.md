@@ -1,1 +1,0 @@
-# GraficasCompu_Proyecto2
